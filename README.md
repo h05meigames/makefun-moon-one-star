@@ -6,9 +6,9 @@
 
 Entry for the [make.fun bounty "The Moon Gets One Star"](https://make.fun/bounty/u-eager-stork-81-9647-the-moon-gets-one-star-768236e5): write the funniest one-star review of the Moon in 120 characters or fewer.
 
-## The entry (112 characters)
+## The entry (97 characters)
 
-> ★☆☆☆☆ Disappears for days, comes back a different shape every night, and somehow I'm the crazy one for noticing.
+> ★☆☆☆☆ Disappears for days, comes back a different shape every night, and somehow I'm the lunatic.
 
 ## Run
 
